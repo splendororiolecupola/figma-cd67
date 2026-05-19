@@ -1,4 +1,4 @@
-# 
+# rare Affinity Photo para PC plugins é o melhor Affinity Photo para PC plugins com colocação de imagens e estilos de caractere. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
